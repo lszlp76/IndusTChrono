@@ -1,1 +1,1 @@
-# IndusTChrono
+# IndusTChrono Apple asset resimleri ve renkleri
